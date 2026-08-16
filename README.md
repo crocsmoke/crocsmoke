@@ -1,4 +1,4 @@
-<img align="left" width="300" src="https://img.sanishtech.com/u/589306549c227eb8dd4ec0838ccfb88f.png">
+<img align="left" width="200" src="https://img.sanishtech.com/u/589306549c227eb8dd4ec0838ccfb88f.png">
 
 <p align="center">
 jess / dawn 🐊 fndms dniuid
