@@ -7,11 +7,11 @@ transgender asexual / aroace
  </p>
 
 <p align="center">
-$${\color{#B63E50}"youre}$$ $${\color{#4797B2}out}$$ $${\color{#B63E50}of}$$ ㅤ $${\color{#4797B2}touch}$$ $${\color{#B63E50}."}$$ </br>
+$${\color{#478955}"youre}$$ $${\color{#6F1CA7}out}$$ $${\color{#478955}of}$$ ㅤ $${\color{#6F1CA7}touch}$$ $${\color{#478955}."}$$ </br>
  </p>
 
 <p align="center">
-$${\color{#B63E50}"im}$$ $${\color{#4797B2}out}$$ $${\color{#B63E50}of}$$ ㅤ $${\color{#4797B2}time}$$ $${\color{#B63E50}."}$$ </br>
+$${\color{#6F1CA7}"im}$$ $${\color{#478955}out}$$ $${\color{#6F1CA7}of}$$ ㅤ $${\color{#478955}time}$$ $${\color{#6F1CA7}."}$$ </br>
  </p>
 
 <img align="right" width="200" src="https://img.sanishtech.com/u/957dd47733973687d4df682943a27186.png">
@@ -33,11 +33,11 @@ iwec unless oomfs / party
 [𝓜ain](https://github.com/URAHARA-KI) 🎎 [𝓐lt 1](https://github.com/kuushanks)
 
 <p align="center">
-$${\color{#B63E50}"love}$$ $${\color{#4797B2}us}$$ $${\color{#B63E50}together}$$ ㅤ $${\color{#4797B2}"}$$ $${\color{#B63E50}.}$$ </br>
+$${\color{#478955}"love}$$ $${\color{#6F1CA7}us}$$ $${\color{#478955}together}$$ ㅤ $${\color{#6F1CA7}"}$$ $${\color{#478955}.}$$ </br>
  </p>
 
 <p align="center">
-$${\color{#B63E50}"An}$$ $${\color{#4797B2}eater,}$$ $${\color{#B63E50}i}$$ ㅤ $${\color{#4797B2}need}$$ $${\color{#B63E50}him."}$$ </br>
+$${\color{#6F1CA7}"An}$$ $${\color{#478955}eater,}$$ $${\color{#6F1CA7}i}$$ ㅤ $${\color{#478955}need}$$ $${\color{#6F1CA7}him."}$$ </br>
  </p>
 
 <img align="left" width="200" src="https://img.sanishtech.com/u/e017e448f06b65dd82f077fd23cc7068.png">
