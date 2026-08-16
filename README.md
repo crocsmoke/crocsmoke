@@ -14,6 +14,8 @@ $${\color{#478955}"youre}$$ $${\color{#6F1CA7}out}$$ $${\color{#478955}of}$$ ㅤ
 $${\color{#6F1CA7}"im}$$ $${\color{#478955}out}$$ $${\color{#6F1CA7}of}$$ ㅤ $${\color{#478955}time}$$ $${\color{#6F1CA7}."}$$ </br>
  </p>
 
+![Views](https://komarev.com/ghpvc/?username=CATAL0G&color=6F1CA7&style=flat&label=crocsmoke)
+
 <img align="right" width="200" src="https://img.sanishtech.com/u/957dd47733973687d4df682943a27186.png">
 
 <p align="center">
