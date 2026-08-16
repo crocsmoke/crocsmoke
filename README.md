@@ -31,3 +31,17 @@ iwec unless oomfs / party
 ##### <p align="center"><img src="https://img.sanishtech.com/u/5c6e30ac53c71eb6107e1fc301b708d4.png" width="200" height="auto" align="center"></img></a> <br>
 
 [𝓜ain](https://github.com/URAHARA-KI) 🎎 [𝓐lt 1](https://github.com/kuushanks)
+
+<p align="center">
+$${\color{#B63E50}"love}$$ $${\color{#4797B2}us}$$ $${\color{#B63E50}together}$$ ㅤ $${\color{#4797B2}"}$$ $${\color{#B63E50}.}$$ </br>
+ </p>
+
+<p align="center">
+$${\color{#B63E50}"An}$$ $${\color{#4797B2}eater,}$$ $${\color{#B63E50}i}$$ ㅤ $${\color{#4797B2}need}$$ $${\color{#B63E50}him."}$$ </br>
+ </p>
+
+<img align="left" width="200" src="https://img.sanishtech.com/u/e017e448f06b65dd82f077fd23cc7068.png">
+
+<p align="center">
+$${\color{#B63E50}check}$$ $${\color{#4797B2}my}$$ $${\color{#B63E50}main}$$ ㅤ $${\color{#4797B2}before}$$ $${\color{#B63E50}you int.}$$ </br>
+ </p>
