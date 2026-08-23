@@ -1,4 +1,4 @@
-<img align="left" width="200" src="https://img.sanishtech.com/u/589306549c227eb8dd4ec0838ccfb88f.png">
+<img align="left" width="200" src="https://img.sanishtech.com/u/59f5eaaa7a86d97f371ad7c02870da1a.png">
 
 <p align="center">
 jess / dawn 🐊 fndms dniuid
@@ -14,7 +14,7 @@ $${\color{#478955}"youre}$$ $${\color{#6F1CA7}out}$$ $${\color{#478955}of}$$ ㅤ
 $${\color{#6F1CA7}"im}$$ $${\color{#478955}out}$$ $${\color{#6F1CA7}of}$$ ㅤ $${\color{#478955}time}$$ $${\color{#6F1CA7}."}$$ </br>
  </p>
 
-<img align="right" width="200" src="https://img.sanishtech.com/u/957dd47733973687d4df682943a27186.png">
+<img align="right" width="200" src="https://img.sanishtech.com/u/670482c913eddce24b09e42daefa24d9.png">
 
 <p align="center">
 multishipper 🗝 heavy dnis
