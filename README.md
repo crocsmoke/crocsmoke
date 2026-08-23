@@ -28,7 +28,7 @@ kushanks & crocsmoke ints (any other ships int) 🔮
 iwec unless oomfs / party
 🍾
 
-##### <p align="center"><img src="https://img.sanishtech.com/u/5c6e30ac53c71eb6107e1fc301b708d4.png" width="200" height="auto" align="center"></img></a> <br>
+##### <p align="center"><img src="https://img.sanishtech.com/u/2cd31bd6164975cd91cd508d1feb4260.png" width="200" height="auto" align="center"></img></a> <br>
 
 [𝓜ain](https://github.com/URAHARA-KI) 🎎 [𝓐lt 1](https://github.com/kuushanks)
 
