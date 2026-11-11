@@ -1,5 +1,7 @@
-<img align="center" width="300" src="https://img.sanishtech.com/u/59f33d93af22a8c3eb40a311170bf441.png">
+<div align="center">
+
+<img align="left" src="https://img.sanishtech.com/u/7999a04051494036f0e046147168e043.png" width="300">
+
+INSERT INFOㅤINSERT INFO INSERT INFOㅤINSERT INFO INSERT INFOㅤINSERT INFO INSERT INFOㅤINSERT INFO INSERT INFOㅤINSERT INFO INSERT INFOㅤINSERT INFO INSERT INFOㅤINSERT INFO INSERT INFOㅤINSERT INFO INSERT INFOㅤINSERT INFO INSERT INFOㅤINSERT INFO INSERT INFOㅤINSERT INFO INSERT INFOㅤINSERT INFO INSERT INFOㅤINSERT INFO
 
 <br>
-
-[main](https://github.com/URAHARA-KI)ㅤ[01](https://github.com/kuushanks)ㅤ[03](https://github.com/G0DVALLEY)
